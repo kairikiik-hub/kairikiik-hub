@@ -1,4 +1,4 @@
-# Tere! 👋 Mina olen [Kairi Kiik]
+# Tere! 👋 Mina olen Kairi Kiik
  
 ## 🎯 Andmeanalüütiku Karjääri Algus
  
